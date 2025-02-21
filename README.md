@@ -1,2 +1,8 @@
-# the-ultimate-question-and-answer
-The Ultimate Question and Answer
+# 终极问题和答案
+
+终极问题：
+人生的意义是什么？
+
+答案：
+以天地的视角观看世界按照客观规律变化。
+以观众的视角附身自己帮助自己渡过难关。
